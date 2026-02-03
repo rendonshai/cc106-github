@@ -1,3 +1,3 @@
-## Pull Request Practice
-This update was made for the pull request simulation activity.
-This update was made for the pull request simulation activity.
+Every error is proof that you're trying-and that's how progress is made.
+Pretty crazy
+Shaira
